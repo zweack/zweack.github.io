@@ -1,5 +1,5 @@
-## Welcome to my page
+## Hey there! This is Jeet
 
-Still working on it. . . !
+# Know more about me here:
 
 Checkout in a while.  . . 
