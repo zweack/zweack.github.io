@@ -12,11 +12,11 @@
 
 #### Connect with me:
 
-[Facebook](https://www.linkedin.com/in/jeetjain8/)
+[LinkedIn](https://www.linkedin.com/in/jeetjain8/)
 
 [Twitter](https://twitter.com/hereisjeet)
 
-[LinkedIn](https://www.facebook.com/zweack)
+[Facebook](https://www.facebook.com/zweack)
 
 [GitHub](https://github.com/zweack)
 
