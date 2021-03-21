@@ -1,5 +1,3 @@
-## Hey there! This is Jeet
+## Hey There Visitor!
 
-# Know more about me here:
-
-Checkout in a while.  . . 
+### [Hit here to know about me](https://zweack.github.io/) 
